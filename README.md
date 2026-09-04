@@ -29,9 +29,9 @@
 
 ## 联系方式
 
-邮箱: 2068364343@qq.com
+邮箱: comicpython2703@outlook.com
 
-bilibili 主页：[点击访问](https://space.bilibili.com/1056060818)
+bilibili 主页：[点击访问](https://space.bilibili.com/514391322)
 
 ## 许可证
 
